@@ -1,2 +1,2 @@
-Template 2 updated
+Template 2
   
